@@ -1,2 +1,2 @@
-# chikenproject
+# Lomovskaya-KA
 # Lomovskaya-KA
